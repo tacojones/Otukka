@@ -1,2 +1,1 @@
-# Otukka
-A theme for PekWM
+![Otukka](https://i.imgur.com/Bk7iwGr.png)
