@@ -1,1 +1,1 @@
-![Otukka](https://i.imgur.com/Bk7iwGr.png)
+[Imgur](https://i.imgur.com/J5Q9TYZm.png)
